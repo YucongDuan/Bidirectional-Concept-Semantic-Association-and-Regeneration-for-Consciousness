@@ -1,0 +1,1 @@
+This report reorganizes consciousness research as a bidirectional association ecology between concept space and semantic space. Context shifts and new representations expand traceable branches; structural regeneration does not automatically assign subjective experience.
